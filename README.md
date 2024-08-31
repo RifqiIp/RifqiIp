@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 
 I’m Rifqi Iqbal Pratama
-🌱 I’m currently studying at Darma Persada University
+🌱 
